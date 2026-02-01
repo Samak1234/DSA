@@ -1,1 +1,0 @@
-notes by Samaksh
